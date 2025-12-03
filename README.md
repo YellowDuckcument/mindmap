@@ -1,3 +1,0 @@
-"# mindmap" 
-"# mindmap" 
-# mindmap
